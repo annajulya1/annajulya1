@@ -8,5 +8,12 @@
 
 * Estudo no Colégio Civico Militar Helena Viana Sundin
 
+* ana.lima.silva04@escola.pr.gov.br
+
+* @julyasanttos_
+
+
+![](https://media.tenor.com/rNCdBEqBKjoAAAAd/sad-cat.gif)
+
 
 
